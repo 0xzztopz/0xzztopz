@@ -1,1 +1,1 @@
-Apolitical Geopolitics Observer | Intel Farmer
+Intel Farmer
